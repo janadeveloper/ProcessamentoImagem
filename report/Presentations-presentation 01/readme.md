@@ -1,4 +1,4 @@
-# Link da apresentação: https://docs.google.com/presentation/d/14ww9Bjk6qo-uy48Sma9N7NXOg5Jr7OQ60WrI-u4OjfE/edit?usp=sharing
+# Link da apresentação (em andamento): https://docs.google.com/presentation/d/14ww9Bjk6qo-uy48Sma9N7NXOg5Jr7OQ60WrI-u4OjfE/edit?usp=sharing
 
 
 # Slide 1: Title and Introduction
